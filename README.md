@@ -1,1 +1,3 @@
-# launcherr_check.github.io
+bruh
+
+u are scammed
